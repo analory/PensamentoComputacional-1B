@@ -10,4 +10,4 @@ _estrada molhada pela garoa, sem carro a vista_
 _um vento gentil em meu rosto bater, como uma petala de flor ao florecer_
 _passaros voando ao relento ao norte, durante horas, sobe a luz da noite_
 _luzes da noite se esconde ao sol nascer, voltam ao anoitecer_
-_luzes que guiam meu caminho ao meu destino 
+_luzes que guiam meu caminho ao meu destino_
