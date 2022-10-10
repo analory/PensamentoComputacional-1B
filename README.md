@@ -1,7 +1,7 @@
 # PensamentoComputacional-1B
 trabalhos PC
 
-titulo:loryane de oliveira N:25   Poliana santiago Marquês n; 34 
+titulo:loryane de oliveira N:53   ana paula schefer gonçalves n;2
 
 ***Poema***
 
